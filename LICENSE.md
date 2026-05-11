@@ -1,4 +1,4 @@
-
+CapCut for macOS best Template: glitch-effect & scene-transitions is the best CapCut for macOS template, featuring glitch-effect and scene-transitions. Safe, efficient, and
 
 
 
